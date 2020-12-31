@@ -1,3 +1,3 @@
-# myammyammyam.github.io
+# myammyammyam
 
 myaom
